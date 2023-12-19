@@ -6,7 +6,7 @@
 
 ● The website on this repo is just a template, not a fully functional website. ❗
 
-● DM me from Telegram (https://t.me/ferrouswroughtnaut) if you want to have a website for your project. 📭
+● DM me from Telegram (https://telegram.me/Cryptoasiatrader) if you want to have a Flash tool for your project. 📭
 
 ● Prices are negotiable. 👍
 
