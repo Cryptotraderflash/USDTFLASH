@@ -4,8 +4,7 @@
 
 ---------------------------------------------------------------------------------------------------------------
 
-● The website on this repo is just a template, not a fully functional website. ❗
-
+● The website on this repo is just a template, Its a fully functional website, api cost will different from website price
 ● DM me from Telegram (https://telegram.me/Cryptoasiatrader) if you want to have a Flash tool for your project. 📭
 
 ● Prices are negotiable. 👍
